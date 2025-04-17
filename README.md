@@ -68,6 +68,6 @@ It was a great foundational exercise in building a small yet complete software s
 
 *Akshit Bhandari*  
 📧 abhandari78@norquest.ca 
-📞 +1 (780) 123-4567
+📞 +1 (437) 970-9974
 
 ---
